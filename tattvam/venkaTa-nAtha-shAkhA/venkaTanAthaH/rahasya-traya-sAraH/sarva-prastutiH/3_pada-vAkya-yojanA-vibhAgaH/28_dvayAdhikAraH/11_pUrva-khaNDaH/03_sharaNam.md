@@ -12,6 +12,18 @@ EL SIGNIFICADO DE LA PALABRA ŚARAṆAM
 </details>
 
 ## उपायता
+
+<details><summary>विजय-राघवः (क) - अवतारिका</summary>
+
+शरणवॆम्ब शब्दद अर्थवु
+
+शरण-शब्दक्कॆ अनेकार्थग्ळु उण्टु. अवुगळु यावुवॆन्दु तिळिसि, 
+
+""
+""
+""
+</details>
+
 <details open><summary>विश्वास-प्रस्तुतिः</summary>
 
 इव्व् इडत्तिल् शरण-शब्दम् 
