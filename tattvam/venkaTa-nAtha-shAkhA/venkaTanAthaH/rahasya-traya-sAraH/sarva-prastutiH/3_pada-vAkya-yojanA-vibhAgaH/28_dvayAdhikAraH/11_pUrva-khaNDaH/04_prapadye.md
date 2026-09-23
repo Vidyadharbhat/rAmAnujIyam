@@ -2309,7 +2309,6 @@ que **se dice** en otro mantra para la **ejecución** de prapatti (como lo anter
 ""
 ""
 </details>
-""
 
 
 ## उत्तम-पुरुषः - वशी-करणम्
